@@ -1,2 +1,2 @@
 # CMPSCS_131_FINAL_CODE
-This is the final stuff
+This is the final stuff PLEASE FUCKING VERIFY, NOT MY FAULT IF ITS WRONG AND YA GET IT WRONG
